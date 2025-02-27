@@ -1,5 +1,5 @@
 # re_install_windowsAPP
-下载%download：
+下载&download：
      链接: https://caiyun.139.com/m/i?2jQXif1xHequi  提取码:q8ll
 
 中文版：
